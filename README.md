@@ -14,7 +14,7 @@
 
 <span style="color🐦‍⬛">𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓘𝓿𝓪𝓷'𝓼 𝖂𝖔𝖗𝖑𝖉</span>
 
-<span style="color⚫reday call 
+<span style="color⚫">you may call 
 me Ivan or Sebastian</span>
 
 <span style="color🐦‍⬛">He Him is my pronounce</span>
