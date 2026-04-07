@@ -12,11 +12,15 @@
 ![1000005104](https://github.com/user-attachments/assets/c822989f-ced5-42bb-a4c4-1cca5600bb12)
 
 
-<span style="color:black">𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓘𝓿𝓪𝓷'𝓼 𝖂𝖔𝖗𝖑𝖉</span>
+<span style="color🐦‍⬛">𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓘𝓿𝓪𝓷'𝓼 𝖂𝖔𝖗𝖑𝖉</span>
 
-<span style="color:gray">You may call me Ivan or Sebastian</span>
-<span style="color:black">He Him is my pronounce</span>
-<span style="color:red">Most of the times afk or at the work but open for C+H</span>
-<span style="color:red">You can talk to me personally for more information</span>
+<span style="color⚫reday call 
+me Ivan or Sebastian</span>
+
+<span style="color🐦‍⬛">He Him is my pronounce</span>
+
+<span style="red">most of the times afk or at the work but open for C+H</span>
+
+<span style="red">You can talk to me personally for more information</span>
 
 ![1000005102](https://github.com/user-attachments/assets/f3ed65c3-855e-449f-914f-309cae234d89)
