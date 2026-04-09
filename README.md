@@ -1,4 +1,4 @@
-![1000005131](https://github.com/user-attachments/assets/363a24b6-6311-4ca4-a696-206ccc36093e)
+
 
 
 
@@ -27,4 +27,5 @@ me Ivan or Sebastian</span>
 
 <span style="red">You can talk to me personally for more information</span>
 
-![1000005102](https://github.com/user-attachments/assets/f3ed65c3-855e-449f-914f-309cae234d89)
+
+![1000005102](https://github.com/user-attachments/assets/7557f905-2a23-43eb-9eb1-09f8b58d1b41)
