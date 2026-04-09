@@ -1,7 +1,6 @@
 ![1000005131](https://github.com/user-attachments/assets/363a24b6-6311-4ca4-a696-206ccc36093e)
 
 
-![1000005311](https://github.com/user-attachments/assets/d579a604-10a7-494e-aa5e-ea77ab3d3bdb)
 
 ![1000005419](https://github.com/user-attachments/assets/90c1f58e-8669-4f7a-a88c-a314848bd8cd)
 
@@ -15,8 +14,6 @@
 
 
 
-
-![1000005104](https://github.com/user-attachments/assets/c822989f-ced5-42bb-a4c4-1cca5600bb12)
 
 
 <span style="color🐦‍⬛">𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓘𝓿𝓪𝓷'𝓼 𝖂𝖔𝖗𝖑𝖉</span>
