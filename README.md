@@ -3,7 +3,8 @@
 
 ![1000005311](https://github.com/user-attachments/assets/d579a604-10a7-494e-aa5e-ea77ab3d3bdb)
 
-![1000005310](https://github.com/user-attachments/assets/29cd9b7a-14fc-487a-bbd1-f0ec768e139c)
+![1000005419](https://github.com/user-attachments/assets/90c1f58e-8669-4f7a-a88c-a314848bd8cd)
+
 
 <img width="735" height="226" alt="1000005415" src="https://github.com/user-attachments/assets/7184dc3a-e3be-4a7c-837b-78394af35c7f" />
 
